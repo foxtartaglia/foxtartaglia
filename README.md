@@ -1,6 +1,6 @@
 # Pween BFYI + Info
 
-<img width="670" height="222" alt="image" src="https://i.pinimg.com/736x/68/28/54/6828549bb79e531048b2d4c38a83ee08.jpg" />
+<img width="670" height="222" alt="image" src="https://i.pinimg.com/1200x/ef/c3/fd/efc3fd26a13f82be830979f3ecdd28ad.jpg" />
 
 -
 
