@@ -2,7 +2,7 @@
 
 <img width="670" height="222" alt="image" src="https://i.pinimg.com/1200x/ef/c3/fd/efc3fd26a13f82be830979f3ecdd28ad.jpg" />
 
--
+- BEFORE I CONTINUE TO MY INTRO, I'd like to thank anyone who has nominated me for the Ponytown Walk of Fame, I was insanely suprised there was even an account like this and especially that I was NOMINATED FOR PRETTIEST PONIES HELLO???? Thank you guys so much bro I was so suprised because I only noticed AFTER I came back from a week of vacation.
 
 ### ╭【   ♡・ Basic info 】  ・・
 
