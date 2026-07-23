@@ -10,7 +10,7 @@ Follow my tiktok and sign my ata yo
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-You can call me Pween or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies... Also my discord is foxtartaglia if you wanna become like friends off game as well <3 . Please keep in mind I am not the kindest person at times, I usually decide if I like you within the first 10 minutes of meeting and if I don't I'll most likely avoid interacting with you as much afterwards, this is NOT PERSONAL I just tend to be a very selective person.
+You can call me Childe or pween, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies... Also my discord is foxtartaglia if you wanna become like friends off game as well <3 . Please keep in mind I am not the kindest person at times, I usually decide if I like you within the first 10 minutes of meeting and if I don't I'll most likely avoid interacting with you as much afterwards, this is NOT PERSONAL I just tend to be a very selective person.
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
