@@ -31,4 +31,4 @@ You can call me Childe or pween, or any cos I have on. C+H encouraged and w2i!! 
 
 INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
 
-DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first.
+DNI : Basic DNI, if you don't like kinnies or yumeshippers please avoid me as literally all my friends are yumeshippers and im a kinnie, also trolls iwc as i may block you unless i int first
