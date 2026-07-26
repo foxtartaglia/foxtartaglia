@@ -25,7 +25,7 @@ You can call me Ajax or Reno, or any cos I have on. C+H encouraged and w2i!! Usu
  
  🌙 : 100% offtab, on call, playing a game ect. Feel free to sit with me, c+h is VERY encouraged. 
  
- ⛔ : My DNI, usually not used unless I'm with friends
+ ⛔ : My DNI, if I am in dni avoid sitting w/ me unless I have you friended because I am more comfortable with you, also usually is on if I'm talking to friends and can't multitask
  
 ### ╭【   ♡・ INT / DNI 】  ・・
 
