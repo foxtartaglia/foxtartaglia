@@ -11,7 +11,7 @@ Follow my tiktok and sign my ata yo
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-You can call me Ajax or Reno, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3...
+You can call me Ajax or Reno, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3... Also you'll prob see me as my Childe pony 24/7 so ya
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
