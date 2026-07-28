@@ -3,7 +3,7 @@
 
 <img width="670" height="222" alt="image" src="https://i.pinimg.com/1200x/ef/c3/fd/efc3fd26a13f82be830979f3ecdd28ad.jpg" />
 
-- BEFORE I CONTINUE TO MY INTRO, thank you to whoever had nominated me as ponytown's Childe AND one of the prettiest ponies <3 <img width="327" height="52" alt="image" src="https://github.com/user-attachments/assets/f9a1ea32-a08c-4146-b65e-9bacdaba8a40" />
+- BEFORE I CONTINUE TO MY INTRO, thank you to whoever had nominated me as ponytown's Childe on both new ponytown hall accounts <3 <img width="327" height="52" alt="image" src="https://github.com/user-attachments/assets/f9a1ea32-a08c-4146-b65e-9bacdaba8a40" />
 
 
 Follow my tiktok and sign my ata yo
