@@ -13,7 +13,7 @@ Follow my tiktok and sign my ata yo
 
 You can call me Ajax or Reno, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3... Also you'll prob see me as my Childe pony 24/7 so ya
 
-If you ever believe I am stealing your pony design or taking inspo [which I literally only have 1 pony technically which is my childe pony and all my varients of him], feel free to whisper me and we can talk it out. If I ever do take inspo [I don't like taking inspo usually cause I like my own designs better], I will whisper said person. Putting this here because some 26 year old dm'd me on discord yelling at me for copying their ponuy (which I didn't) and then they tried to tell me that they were gonna dox me or something (???). Please be civil.
+I've noticed I've been getting nominated for a lot of those ponytowns xyz character thingy, I appreciate it immensely since I just got back from a few month (more like year) break, PLEASE though, do not like send multiple nomination votes or however it works to these accounts to rig it or something just because you like my pony. My friends do it whenever they see an account because they themselves don't play ponytown and don't understand that other people may also want that title as pony town's childe, but please please please don't spam vote because I think the accounts can tell and possibly try and disqualify me from it
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
 ### ╭【   ♡・ Status info 】  ・・
