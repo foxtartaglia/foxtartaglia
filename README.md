@@ -11,9 +11,9 @@ Follow my tiktok and sign my ata yo
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-You can call me Ajax or Reno, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3... Also you'll prob see me as my Childe pony 24/7 so ya
+You can call me Alek or Childe, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3... Also you'll prob see me as my Childe pony 24/7 so ya
 
-I've noticed I've been getting nominated for a lot of those ponytowns xyz character thingy, I appreciate it immensely since I just got back from a few month (more like year) break, PLEASE though, do not like send multiple nomination votes or however it works to these accounts to rig it or something just because you like my pony.please please please don't spam vote because I think the accounts can tell and possibly try and disqualify me from it. This DOESN'T mean I don't like being nominated just don't annoy or overwhelm the creators of those accounts </3
+When interacting with me, I basically view all my friends as siblings, whether you're older or younger than me I automatically have that kind of mindset. So don't playfully flirt or make comments about me ect, I will most likely distance myself from you (also because I already have my lovely partner Austin)
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
 ### ╭【   ♡・ Status info 】  ・・
