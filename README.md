@@ -13,7 +13,7 @@ Follow my tiktok and sign my ata yo
 
 You can call me Alek or Childe, or any cos I have on. C+H encouraged and w2i!! Usually offtab or making ponies and listening to music!! If you sit w/ me Ill prob friend you as a way to keep track on who is fine with me sitting with them!! I like typology alot alot I am enfj 2w3... Also you'll prob see me as my Childe pony 24/7 so ya
 
-When interacting with me, I basically view all my friends as siblings, whether you're older or younger than me I automatically have that kind of mindset. So don't playfully flirt or make comments about me ect, I will most likely distance myself from you (also because I already have my lovely partner Austin)
+When interacting with me I am most likely offtab. I am a very cheerful and over the top person at times. With my friends, whether you're older or younger than me I pretty much automatically view them in a sibling like way. Especially if you're older I may be nervous to talk to you because I automatically perceive you as cooler than me and someone I most likely will immediately look up to. PLEASE do not make weird or flirty comments about me, I will most likely distance myself from you.
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
