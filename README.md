@@ -5,7 +5,7 @@
 
 
 
-Follow my tiktok and sign my ata yo
+Sign my ata and strawpage yo
 
 ### ╭【   ♡・ Basic info 】  ・・
 
