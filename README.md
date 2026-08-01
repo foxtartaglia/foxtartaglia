@@ -3,7 +3,7 @@
 
 <img width="670" height="222" alt="image" src="https://i.pinimg.com/1200x/ef/c3/fd/efc3fd26a13f82be830979f3ecdd28ad.jpg" />
 
-Ponytown's Childe on @pt-hall-of-media and @pt-walk-of-fame
+Ponytown's Childe on [@pt-hall-of-media](https://github.com/pt-hall-of-media) and [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
 
 
 Follow my tiktok and sign my ata yo
