@@ -1,6 +1,6 @@
 # Info Page
 
-(https://komarev.com/ghpvc/?username=foxtartaglia&color=orange) 
+https://komarev.com/ghpvc/?username=foxtartaglia&color=orange 
 
 <img width="670" height="222" alt="image" src="https://i.pinimg.com/1200x/ef/c3/fd/efc3fd26a13f82be830979f3ecdd28ad.jpg" />
 
