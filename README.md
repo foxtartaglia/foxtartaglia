@@ -12,7 +12,7 @@ Sign my ata and strawpage yo
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-Call me Alek or Emma, I am nonbinary and possibly genderfluid so I am okay with all pronouns, I am a Childe oshi and yumeshipper (I also kin him but not a "oh I am him!" I just very much relate to him mostly with how he and his family dynamic works.). I am absolutely MORTIFIED to make friends. Please interact first I am very scared of everyone highkey and I'm lonely.
+Call me Alek or Emma, I am nonbinary and possibly genderfluid so I am okay with all pronouns, I am a Childe oshi and yumeshipper (I also kin him but not a "oh I am him!" I just very much relate to him mostly with how he and his family dynamic works.). I am absolutely MORTIFIED to make friends. Please interact first I am very scared of everyone highkey and I'm lonely. I also have a very long actual kin list, but my highest kins are prob Lucy from fairytail and Zhongli from genshin
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
