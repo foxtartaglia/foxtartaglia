@@ -7,7 +7,7 @@
 
 Sign my ata and strawpage yo
 
--# Ponytown's Childe on [@pt-hall-of-media](https://github.com/pt-hall-of-media) and [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)
+-# Ponytown's Childe on [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), and [@title-town](https://github.com/title-town)
 !
 ### ╭【   ♡・ Basic info 】  ・・
 
