@@ -1,6 +1,6 @@
 # WIP
 
-<img width="1647" height="2754" alt="image" src="https://github.com/user-attachments/assets/eef03601-9ba9-4924-af05-a2c8ac8a5932" />
+<img width="1447" height="2554" alt="image" src="https://github.com/user-attachments/assets/eef03601-9ba9-4924-af05-a2c8ac8a5932" />
 
 
 
