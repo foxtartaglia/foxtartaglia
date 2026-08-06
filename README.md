@@ -1,6 +1,7 @@
 # WIP
-<img width="775" height="444" alt="image" src="<img width="1647" height="2754" alt="image" src= "https://media.discordapp.net/attachments/1515510345001603112/1534732447730630879/0.png"
-" />
+
+<img width="1647" height="2754" alt="image" src="https://github.com/user-attachments/assets/eef03601-9ba9-4924-af05-a2c8ac8a5932" />
+
 
 
 -# Ponytown's Childe on [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-of-fame](https://github.com/pt-walk-of-fame), and [@title-town](https://github.com/title-town)
