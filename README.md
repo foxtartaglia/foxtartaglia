@@ -1,7 +1,12 @@
 
 
-<img width="1647" height="2754" alt="image" src="https://github.com/user-attachments/assets/9e0f3daa-89e7-4c2e-8a8d-4f10b7a6573d" />
-
+<p align="center">
+  <picture>
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/9e0f3daa-89e7-4c2e-8a8d-4f10b7a6573d">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/9e0f3daa-89e7-4c2e-8a8d-4f10b7a6573d">
+    <img width="2000" height="1900" alt="image" src="https://github.com/user-attachments/assets/9e0f3daa-89e7-4c2e-8a8d-4f10b7a6573d">
+  </picture>
+</p>
 
 
 
